@@ -1,16 +1,35 @@
 ### Hi there 👋
 
-<!--
-**Mariaclaraavila/Mariaclaraavila** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+🏠_eu moro em foz do iguaçu
+🫀_eu namoro a 5 meses 
+🌜_ eu amo a lua e sair a noite
+🎓_quero fazer faculdade de medicina 
+🥳_ eu tenho 15 anos 
+🧟‍♀️_ amo festa de hallowen 
+💇🏻‍♀️_trabalho em salão
+👩‍👦‍👦_tenho 1 afilhado e 2 sobrinhos
+🐶_ tenho uma cachorrinha chamada luna
+⛈️_adoro o som da chuva
+🍕_ minha comida favorita e pizza
+🌌_ amo ver as estrelas
+🧸_tenho muitos ursos
+🛒_ adoro fazer compras 
+🎉_adoro organizar festas
+✝️_meu ponto de paz eu encontro na igreja
+⚫️_ preto e minha cor preferida e preto
+🔊_amo escutar musicas
+🃏_aprendi a jogar truco com meu namorado
+💌_amo fazer presentes a mão
+🗒️_eu estou estudando progamaçao em pensamento computacional
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+  
+
+  
+
+
+
+
+
